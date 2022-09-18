@@ -1,0 +1,2 @@
+# NWE
+Team Gaming NWE
